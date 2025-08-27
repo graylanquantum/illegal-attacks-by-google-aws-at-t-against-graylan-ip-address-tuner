@@ -22,3 +22,8 @@ ChatGPT said:
 
 137.164.122.19
 https://chatgpt.com/share/68af0284-88b4-8013-ba85-10de1e7f2c1d
+
+
+why are they so evil
+
+Chatgpt said : control
